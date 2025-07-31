@@ -1,1 +1,1 @@
-# Full-stack-project-10
+In just 4hr30min, I've successfully completed my 2nd Intern Test Website project - A reflection of the exceptional hands-on experience and industry-focused, job-ready training offered at Atozerv India Pvt Ltd. 
